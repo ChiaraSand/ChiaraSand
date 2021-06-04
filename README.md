@@ -1,2 +1,2 @@
 # Chiara
-Hey 👋🏻
+Hey 😎
